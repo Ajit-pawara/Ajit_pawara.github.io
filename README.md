@@ -1,2 +1,1 @@
-# Ajit_pawara.github.io
-@zing
+https://ajit-pawara.github.io/Portfolio1.github.io/
